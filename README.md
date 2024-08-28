@@ -1,6 +1,8 @@
 # Mental-Health
 🧠 Seek empathy and understanding 🩷 
 
+SUICIDE IS THE 2ND LEADING GLOBAL CAUSE OF DEATH FOR PEOPLE 15-29 YEARS OLD...
+
 1. Inside Anxiety - A 360 Degree VR Video Drama | BBC Scotland
 https://youtu.be/Pa7eX5BPt3Q?si=iqzdJY6FUwL547DT
 
